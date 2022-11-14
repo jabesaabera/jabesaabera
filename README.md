@@ -5,7 +5,12 @@
 - 📫 How to reach me ...
 
 <!---
-jabesaabera/jabesaabera yoo tuqxan kallatumaan odeessa koo nii argattu
- ✨ addatti waan ✨ Liinkii kana`bantanii.dubbiftanif` (galatooma) nagaa qabaadhaa.
-You can click the Preview link to take a look at your ...
+jabesaabera/jabesaabera yoo tuqxan kallatumaan 
+odeessa koo nii argattu
+ ✨ addatti waan ✨ Liinkii kana`bantanii.
+dubbiftanif` 
+(galatooma) nagaa qabaadhaa.You can click
+ the Preview link to take a look at your ...
 --->
+Barbaachisummaan Liinkii kanaa heedduu tayus 
+An kanin fayyadamuuf garuu .......
