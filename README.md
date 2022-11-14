@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 
 <!---
-jabesaabera/jabesaabera is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+jabesaabera/jabesaabera yoo tuqxan kallatumaan odeessa koo nii argattu
+ ✨ addatti waan ✨ Liinkii kana`bantanii.dubbiftanif` (galatooma) nagaa qabaadhaa.
+You can click the Preview link to take a look at your ...
 --->
